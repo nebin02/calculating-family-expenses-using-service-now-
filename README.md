@@ -12,4 +12,4 @@ Team member : JIJO D
 
 Team member : ARUN M
 
-demo video
+demo video link: https://drive.google.com/file/d/1lb9RT9NiQVQnYEeLG-WxiJhhrEHoxE-R/view?usp=sharing
